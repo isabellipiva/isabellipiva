@@ -1,5 +1,5 @@
 - 👋 Oii, eu sou a @isabellipiva
-- 👀 Eu estou interessada em aprender a progamar novas linguagens (ganhar skin no lol também 😉)
+- 👀 Eu estou interessada em aprender a progamar novas linguagens (e ganhar HQs também😉)
 - ☀ Estou aprendendo a programar recentemente a linguagem de Scratch
 
 
